@@ -14,7 +14,7 @@ A passionate developer and tech enthusiast from Indonesia 🇮🇩
 ---
 
 > ℹ️ **Note**  
-> The activity date below is updated manually by Regey Anggara.
+> The activity date below is updated manually by Regexd
 
 ---
 
